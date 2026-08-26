@@ -1,5 +1,5 @@
 # first
-this is great to announce that my college is IIIT Vadodara 
+
 good morning to all the people in the world have a great day  
 1. Indian Institute of Information Technology Vadodara (IIIT Vadodara) is a premier institute focused on information technology and related fields.
 2. It is located in Vadodara, Gujarat.
