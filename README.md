@@ -1,2 +1,2 @@
 # first
-this is great to announce that my college is IIT gandhinagar
+this is great to announce that my college is IIIT Vadodara
